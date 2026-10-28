@@ -1,0 +1,1 @@
+This website is created to measure your focus for your satisfaction it is not a professional, so kindly in any professional advice please visit the professional, this website is made with lot of love and care
